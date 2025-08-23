@@ -1,4 +1,3 @@
-# SkuLLHunter
 
 
 # 🕵️ Detailed Analysis Report  
