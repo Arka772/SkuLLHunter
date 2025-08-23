@@ -69,7 +69,3 @@ The surge in missing persons in West Bengal during 2024–2025 cannot be dismiss
 ### 📝 Observation
 
 The rising number of missing persons in West Bengal strongly aligns with human trafficking activities. Trafficking is highly likely to be the key driver behind the surge in untraced missing individuals.
-
----
-
-Let me know if you’d like a matching cover page, section dividers, or a visual summary next.
